@@ -22,4 +22,4 @@ Facebook: [facebook.com/stichtingoudsempre](http://www.facebook.com/stichtingoud
 
 ## Updates
 
-Zie https://help.github.com/articles/customizing-css-and-html-in-your-jekyll-theme/
+Zie [https://help.github.com/articles/customizing-css-and-html-in-your-jekyll-theme/](https://help.github.com/articles/customizing-css-and-html-in-your-jekyll-theme/)
