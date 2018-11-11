@@ -8,12 +8,14 @@ Wilt u altijd het laatste nieuws van Sempre en SOS ontvangen, zeker in dit Lustr
 
 E-mail: stichtingoudsempre@gmail.com
 
-Post aan:
+### Post aan:
 
 Stichting Oud Sempre
 
 t.a.v. Fleur Praal
+
 Burgemeester de Josselin de Jonglaan 8
+
 3042 NH, Rotterdam
 
 Facebook: [facebook.com/stichtingoudsempre](http://www.facebook.com/stichtingoudsempre)
