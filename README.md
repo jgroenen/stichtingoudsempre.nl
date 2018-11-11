@@ -17,3 +17,7 @@ Burgemeester de Josselin de Jonglaan 8
 3042 NH, Rotterdam
 
 Facebook: [facebook.com/stichtingoudsempre](http://www.facebook.com/stichtingoudsempre)
+
+## Updates
+
+Zie https://help.github.com/articles/customizing-css-and-html-in-your-jekyll-theme/
