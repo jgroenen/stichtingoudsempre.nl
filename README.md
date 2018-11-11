@@ -12,7 +12,7 @@ Post aan:
 
 Stichting Oud Sempre
 
-t.a.v. drs. Fleur Praal
+t.a.v. Fleur Praal
 Burgemeester de Josselin de Jonglaan 8
 3042 NH, Rotterdam
 
