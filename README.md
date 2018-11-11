@@ -1,37 +1,19 @@
-## Welcome to GitHub Pages
+## Stichting Oud Sempre
 
-You can use the [editor on GitHub](https://github.com/jgroenen/stichting-oud-sempre/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+Welkom op de website van Stichting Oud Sempre. Op deze pagina vindt u informatie over SOS en de activiteiten van SOS en Sempre. 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Wilt u altijd het laatste nieuws van Sempre en SOS ontvangen, zeker in dit Lustrumjaar 2016? Meld u zich dan bij ons per mail, aan stichtingoudsempre@gmail.com. Een overzicht van eerdere Nieuwsbrieven vindt u [onder nieuwsbrieven](http://sos.sempresite.nl/nieuwsbrieven).
 
-### Markdown
+### Contact
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+E-mail: stichtingoudsempre@gmail.com
 
-```markdown
-Syntax highlighted code block
+Post aan:
 
-# Header 1
-## Header 2
-### Header 3
+Stichting Oud Sempre
 
-- Bulleted
-- List
+t.a.v. drs. Fleur Praal
+Burgemeester de Josselin de Jonglaan 8
+3042 NH, Rotterdam
 
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/jgroenen/stichting-oud-sempre/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Facebook: [facebook.com/stichtingoudsempre](http://www.facebook.com/stichtingoudsempre)
