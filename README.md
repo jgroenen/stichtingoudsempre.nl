@@ -12,9 +12,9 @@ Facebook: [facebook.com/stichtingoudsempre](http://www.facebook.com/stichtingoud
 
 LinkedIn: [LinkedInGroup](https://www.linkedin.com/groups/4336251/)
 
-### Post aan:
+### Ab-actiaat:
 
-Stichting Oud Sempre - ab actiaat
+Stichting Oud Sempre
 
 t.a.v. G.J. Schaepman
 
