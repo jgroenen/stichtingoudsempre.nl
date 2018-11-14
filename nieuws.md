@@ -1,4 +1,4 @@
-## Laatste nieuws:
+## Uit de laatste Nieuwsbrief (oktober 2018)
 
 ### Uitnodiging Diesconcert
 
@@ -8,9 +8,9 @@ U bent van harte uitgenodigd het Diesconcert bij te wonen en aansluitend op de b
 
 Kaarten voor het concert kunnen gereserveerd worden via SOS, om die aan de deur te kunnen afhalen. Mail daarvoor naar stichtingoudsempre@gmail.com; bij het reserveren van plaatsen hoor je ook waar na afloop geborreld wordt! 
 
-Wie op de Dies verhinderd is, maar Sempre toch graag hoort optreden, is van harte welkom op het Burgerijconcert op vrijdag 7 december in de Hartebrugkerk ('Coelikerk', Haarlemmerstraat 110). Aanvang 20:00u, kaartverkoop via www.smgsemprecrescendo.nl en aan de deur.
+Wie op de Dies verhinderd is, maar Sempre toch graag hoort optreden, is van harte welkom op het Burgerijconcert op vrijdag 7 december in de Hartebrugkerk ('Coelikerk', Haarlemmerstraat 110). Aanvang 20:00u, kaartverkoop via de [website van Sempre](www.smgsemprecrescendo.nl) en aan de deur.
 
-### Bekijk de gehele laatste nieuwsbrief op https://mailchi.mp/50b2df74e367/stichting-oud-sempre-nieuwsbrief-najaar-2018
+### [Bekijk de gehele laatste nieuwsbrief hier](https://mailchi.mp/50b2df74e367/stichting-oud-sempre-nieuwsbrief-najaar-2018)
 
 ## Aanmelden nieuwsbrief
 
