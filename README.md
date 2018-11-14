@@ -2,7 +2,7 @@ Welkom op de website van Stichting Oud Sempre (SOS), het reünistenorgaan van S.
 
 SOS stelt zich tot doel de banden tussen de reünisten en hun geliefde Gezelschap warm te houden, bijvoorbeeld door donaties, maar ook door het organiseren van activiteiten zoals reünistendagen of borrels na afloop van concerten van het Gezelschap. Reünisten blijven op de hoogte van de activiteiten van Sempre en SOS door middel van de SOS-nieuwsbrief, die tot viermaal per jaar per mail wordt verspreid. Een overzicht van eerdere Nieuwsbrieven vind je [onder nieuwsbrieven](https://stichtingoudsempre.nl/nieuws).
 
-Wil je deze ook ontvangen? Meld je bij ons per mail, aan stichtingoudsempre@gmail.com. 
+Wil je deze ook ontvangen? Meld je bij ons per mail, aan stichtingoudsempre@gmail.com. Vermeld graag ook je jaar van aankomst.
 
 ## Contact
 
