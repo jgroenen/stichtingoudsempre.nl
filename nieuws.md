@@ -16,10 +16,6 @@ Mocht u overigens op Dies verhinderd zijn, maar Sempre toch graag horen optreden
 
 Bekijk de laatste nieuwsbrief op https://mailchi.mp/50b2df74e367/stichting-oud-sempre-nieuwsbrief-najaar-2018
 
-## Nieuwsarchief
-
-
-
 ## Aanmelden nieuwsbrief
 
 Ieder kwartaar stuurt Stichting Oud Sempre een nieuwsbrief naar geïnteresseerden. Aanmelden voor deze nieuwsbrief kan door middel van een e-mail naar stichtingoudsempre@gmail.com.
