@@ -3,6 +3,10 @@
 
 @import "{{ site.theme }}";
 
-body {
-  background: white;
+ul.nav {
+  padding-left: 0;
+  list-style: none;
+}
+ul.nav li {
+  display: inline;
 }
