@@ -1,9 +1,9 @@
 pages:
-  - hoofdpagina
+  - name: hoofdpagina
     url: /
     
-  - nieuws
+  - name: nieuws
     url: /nieuws
     
-  - documenten
+  - name: documenten
     url: /documenten
