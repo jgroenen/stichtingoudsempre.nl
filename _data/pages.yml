@@ -1,0 +1,9 @@
+pages:
+  - hoofdpagina
+    url: /
+    
+  - nieuws
+    url: /nieuws
+    
+  - documenten
+    url: /documenten
