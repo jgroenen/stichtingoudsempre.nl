@@ -24,14 +24,15 @@
 
     <!-- MAIN CONTENT -->
     <div id="main_content_wrap" class="outer">
-
-      <ul class="nav">
-        {% for page in site.data.pages %}
-        <li><a href="{{ page.url }}">{{ page.name }}</a></li>
-        {% endfor %}
-      </ul>
       
       <section id="main_content" class="inner">
+        
+        <ul class="nav">
+          {% for page in site.data.pages %}
+          <li><a href="{{ page.url }}">{{ page.name }}</a></li>
+          {% endfor %}
+        </ul>
+        
         {{ content }}
       </section>
     </div>
