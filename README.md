@@ -26,5 +26,7 @@ Denneweg 158
 
 IBAN: NL45 INGB 0000 048 680
 
-Ten name van Stichting Oud Sepre
+Ten name van Stichting Oud Sempre
+
+Wil je donateur worden? Met [dit formulier](https://drive.google.com/file/d/1MvxQG-HzYJvejG7VyTIh76NQXcPfINfZ/view?usp=sharing) geef je toestemming voor een jaarlijkse incasso. Neem voor meer informatie gerust contat op. 
 
