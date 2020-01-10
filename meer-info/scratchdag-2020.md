@@ -1,10 +1,10 @@
 ## Scratchdag, 7 maart 2020
 
-Op zaterdag 7 maart 2020 zal de jaarlijkse **scratchdag** weer plaatsvinden op Sociëteit Minerva. Tezamen met de huidige leden van SMG "Sempre Crescendo" zullen we overdag een aantal mooie stukken instuderen. Deze worden ten gehore gebracht tijdens het concertje aan het eind van de middag, waarna we de dag afsluiten met een muzijchale borrel op Sociëteit.
+Op zaterdag 7 maart 2020 zal de jaarlijkse **scratchdag** weer plaatsvinden op Sociëteit Minerva. Tezamen met de huidige leden van SMG "Sempre Crescendo" zullen we overdag een aantal mooie stukken instuderen. Deze worden ten gehore gebracht tijdens het concert aan het eind van de middag, waarna we de dag afsluiten met een muzijchale borrel op Sociëteit.
+
+Publiek is van harte welkom (zie "kosten en aanmelding" hieronder).
 
 In de ochtend vooraf zal de SOS **jaarvergadering** plaatsvinden, waarin het SOS-bestuur de jaarstukken toelicht en overige vragen beantwoordt.
-
-Het is ook mogelijk om met delen van het programma mee te doen.
 
 ### Programma
 
@@ -20,9 +20,9 @@ Het is ook mogelijk om met delen van het programma mee te doen.
 
 13:00 aanvang repetities
 
-15:30 pauze met koffie en koek
+15:30 theepauze
 
-16:00 vervolg repetitie (tuttie)
+16:00 vervolg repetitie (tutti)
 
 17:00 klaarmaken voor concert
 
@@ -36,7 +36,9 @@ Het is ook mogelijk om met delen van het programma mee te doen.
 
 De kosten voor deze dag bedragen 30 euro.
 
-Bent u donateur met een vast bedrag van meer dan 40 euro per jaar? Dan is deelname gratis. Dit geldt overigens voor [nieuwe donateurs](/meer-info/donateur-worden).
+*Publiek* voor het concert en de borrel is van harte welkom, dus nodigt u ze vooral uit! Kosten hiervoor zijn 10 euro per persoon.
+
+Bent u donateur met een vast bedrag van meer dan 40 euro per jaar? Dan is deelname gratis. Dit geldt overigens ook voor [nieuwe donateurs](/meer-info/donateur-worden).
 
 U kunt zich aanmelden voor de scratchdag via [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com) onder vermelding van 'scratchdag'. Graag ontvangen we daarbij uw volledige naam, jaar van aankomst, en instrument of stemgroep.
 
