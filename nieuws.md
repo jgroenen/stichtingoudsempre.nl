@@ -1,17 +1,15 @@
-## Uit de laatste Nieuwsbrief (oktober 2018)
+## Nieuwsbrief november 2019
 
-### Uitnodiging Diesconcert
+### Uitnodiging Dies - 7 december 2019
 
-Op zaterdag 8 december 2018 viert Sempre Crescendo zijn 187e Dies Natalis traditiegetrouw met een galaconcert. Het belooft een bijzonder lyrische middag te worden, met op het programma in elk geval delen uit de <i>Midzomernachtsdroom</i> van Felix Mendelssohn (1826), <i>Nänie</i> van Johannes Brahms (1881), en de ‘Gran Finale Secondo’ uit de <i>Aïda</i> van Giuseppe Verdi (1871).
+Het studentenleven staat bekend om zijn onstuimigheid en chaos, maar gelukkig kent de kalender van Sempre grote regelmaat. Op zaterdag 7 december zal de 188ste dies natalis van Sempre worden gevierd, zoals dat hoort met een concert en gala. Naar goed gebruik is het concert een matinee-uitvoering, startend om klokke 15 uur in de Marekerk.
 
-U bent van harte uitgenodigd het Diesconcert bij te wonen en aansluitend op de besloten borrel met Sempres werkende leden en genodigden vrolijk het glas te heffen op de Dies van het Gezelschap. Het concert begint om 15:00u in de Marekerk (Lange Mare 48, Leiden). Sempre musiceert in galatenue (<i>white tie</i>); genodigden wordt gevraagd zich feestelijk te kleden.
+In het thema 'De jonge musicus' zullen onder andere de Krönungsmesse van Mozart en het tweede pianoconcert van Rachmaninoff ten gehore worden gebracht.
 
-Kaarten voor het concert kunnen gereserveerd worden via SOS, om die aan de deur te kunnen afhalen. Mail daarvoor naar stichtingoudsempre@gmail.com; bij het reserveren van plaatsen hoor je ook waar na afloop geborreld wordt! 
+Aansluitend is er de diesborrel op (nog aan te kondigen) locatie. Alle reünisten zijn natuurlijk bij dezen van harte uitgenodigd om te komen luisteren en het glas op het Gezelschap te heffen op deze feestelijke dag. De diesviering is in gala.
 
-Wie op de Dies verhinderd is, maar Sempre toch graag hoort optreden, is van harte welkom op het Burgerijconcert op vrijdag 7 december in de Hartebrugkerk ('Coelikerk', Haarlemmerstraat 110). Aanvang 20:00u, kaartverkoop via de [website van Sempre](www.smgsemprecrescendo.nl) en aan de deur.
+[Bekijk de gehele laatste nieuwsbrief hier](https://mailchi.mp/2358e1b81441/nieuwsbrief-juni-stichting-oud-sempre-505487)
 
-### [Bekijk de gehele laatste nieuwsbrief hier](https://mailchi.mp/50b2df74e367/stichting-oud-sempre-nieuwsbrief-najaar-2018)
+## Blijf op de hoogte
 
-## Aanmelden nieuwsbrief
-
-Maximaal vier keer per jaar stuurt Stichting Oud Sempre een nieuwsbrief naar geïnteresseerden. Aanmelden voor deze nieuwsbrief kan door middel van een e-mail naar stichtingoudsempre@gmail.com. 
+We houden u graag op de hoogte van de activiteiten van Sempre en SOS door middel van onze digitale nieuwsbrief, die viermaal per jaar verschijnt. Onder Nieuws vindt u hiervan een overzicht. Wilt u onze nieuwsbrief ontvangen? Meld u zich dan bij ons aan per mail op stichtingoudsempre@gmail.com, graag met jaar van aankomst en instrument en/of stemgroep.
