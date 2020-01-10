@@ -2,7 +2,7 @@
 
 Per 1 februari 2020 is het bestuur van Stichting Oud Sempre als volgt samengesteld:
 
-dhr. **Tim Kloostermans (1974, choir + orchest)**, Praeses
+dhr. **Tim Kloosterman (1974, choir + orchest)**, Praeses
 
 dhr. **Geert Wijts (2002, choir)**, Quaestor
 
