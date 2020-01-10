@@ -7,7 +7,7 @@ Tim Kloostermans, Praeses
 Geert Wijts, Quaestor
 
 Johan Groenen, Ab-Actis<br>
-(stichtingoudsempre@gmail.com)[mailto:stichtingoudsempre@gmail.com]
+[stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
 
 Guus Schaepman, Commissaris Donateurs en Vice-Praeses
 
