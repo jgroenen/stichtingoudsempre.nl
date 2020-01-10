@@ -11,8 +11,8 @@ dhr. **Johan Groenen (orchest, choir 2003)**, Ab-Actis<br>
 
 dhr. **Guus Schaepman (choir 2009)**, Commissaris Donateurs en Vice-Praeses
 
-mlle. Jet Schipper, Commissaris Jonge Reünisten
+mlle. **Jet Schipper**, Commissaris Jonge Reünisten
 
-mlle. Emma van Wissen, Commissaris Activiteiten
+mlle. **Emma van Wissen**, Commissaris Activiteiten
 
-dhr. Christiaan de Vries, Algemeen Bestuurslid
+dhr. **Christiaan de Vries (orchest, choir 2010)**, Algemeen Bestuurslid
