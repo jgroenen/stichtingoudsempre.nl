@@ -6,16 +6,22 @@ Wil je deze nieuwsbrief ook ontvangen? Meld je bij ons per mail, aan stichtingou
 
 ## Contact
 
-Mail naar: [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
+### Social media
 
 [facebook.com/stichtingoudsempre](http://www.facebook.com/stichtingoudsempre)
 
 [LinkedIn](https://www.linkedin.com/groups/4336251/)
 
-### Ab-actiaat:
+### Ab-actiaat
+
+E-mail:
+
+[stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
+
+Post:
 
 Stichting Oud Sempre<br>
-ter attentie van dhr. Johan P.A. Groenen<br>
+ter attentie van dhr. Johan Groenen<br>
 Burgemeester de Josselin de Jonglaan 8<br>
 3042 NH Rotterdam
 
