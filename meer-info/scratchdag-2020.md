@@ -47,3 +47,5 @@ Bent u donateur met een vast bedrag van meer dan 40 euro per jaar? Dan is deelna
 U kunt zich aanmelden voor de scratchdag via [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com) onder vermelding van 'scratchdag'. Graag ontvangen we daarbij uw volledige naam, jaar van aankomst, en instrument of stemgroep.
 
 Wilt u jonge kinderen meenemen waar op gepast dient te worden? Gelieve dit aan te geven en uw telefoonnummer te vermelden, dan nemen we daarover contact met u op.
+
+<a target="_blank" style="display:inline-block; background: #222222; color: #fff; padding: 1em 2em" href="mailto:stichtingoudsempre@gmail.com?subject=aanmelding%20scratchdag&body=naam:%20%0D%0Ajaar:%20%0D%0Ainstrument/stemgroep:%20%0D%0Aoverige:%20">AANMELDEN</a>
