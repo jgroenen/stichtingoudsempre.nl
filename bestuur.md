@@ -1,6 +1,6 @@
 ## Bestuur
 
-Per 1 februari 2020 is het bestuur als volgt samengesteld:
+Per 1 februari 2020 is het bestuur van Stichting Oud Sempre als volgt samengesteld:
 
 dhr. Tim Kloostermans, Praeses
 
