@@ -6,27 +6,23 @@ Wil je deze nieuwsbrief ook ontvangen? Meld je bij ons per mail, aan stichtingou
 
 ## Contact
 
-E-mail: stichtingoudsempre@gmail.com
+Mail naar: [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
 
-Facebook: [facebook.com/stichtingoudsempre](http://www.facebook.com/stichtingoudsempre)
+[facebook.com/stichtingoudsempre](http://www.facebook.com/stichtingoudsempre)
 
-LinkedIn: [LinkedInGroup](https://www.linkedin.com/groups/4336251/)
+[LinkedIn](https://www.linkedin.com/groups/4336251/)
 
 ### Ab-actiaat:
 
 Stichting Oud Sempre
-
-t.a.v. G.J. Schaepman
-
-Denneweg 158
-
-2514CM Den Haag
+ter attentie van dhr. Johan P.A. Groenen
+Burgemeester de Josselin de Jonglaan 8
+3042 NH Rotterdam
 
 ### Quaestuur:
 
 IBAN: NL45 INGB 0000 048 680
-
-Ten name van Stichting Oud Sempre
+ten name van Stichting Oud Sempre
 
 Wil je donateur worden? Met [dit formulier](https://drive.google.com/file/d/1MvxQG-HzYJvejG7VyTIh76NQXcPfINfZ/view?usp=sharing) geef je toestemming voor een jaarlijkse incasso. Neem voor meer informatie gerust contact op. 
 
