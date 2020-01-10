@@ -12,4 +12,4 @@ Aansluitend is er de diesborrel op (nog aan te kondigen) locatie. Alle reüniste
 
 ## Blijf op de hoogte
 
-We houden u graag op de hoogte van de activiteiten van Sempre en SOS door middel van onze digitale nieuwsbrief, die viermaal per jaar verschijnt. Onder Nieuws vindt u hiervan een overzicht. Wilt u onze nieuwsbrief ontvangen? Meld u zich dan bij ons aan per mail op stichtingoudsempre@gmail.com, graag met jaar van aankomst en instrument en/of stemgroep.
+We houden u graag op de hoogte van de activiteiten van Sempre en SOS door middel van onze digitale nieuwsbrief, die viermaal per jaar verschijnt. Onder [Nieuws](/nieuws.md) vindt u hiervan een overzicht. Wilt u onze nieuwsbrief ontvangen? Meld u zich dan bij ons aan per mail op [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com), graag met jaar van aankomst en instrument en/of stemgroep.
