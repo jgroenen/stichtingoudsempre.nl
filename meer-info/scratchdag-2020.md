@@ -32,6 +32,8 @@ In de ochtend vooraf zal de SOS **jaarvergadering** plaatsvinden, waarin het SOS
 
 18:00 muzijchale borrel
 
+19:30 afsluiting
+
 ### Kosten en aanmelding
 
 De kosten voor deze dag bedragen 30 euro.
