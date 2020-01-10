@@ -4,5 +4,11 @@
 - name: nieuws
   url: /nieuws
   
+- name: agenda
+  url: /agenda
+  
+- name: bestuur
+  url: /bestuur
+  
 - name: documenten
   url: /documenten
