@@ -36,7 +36,7 @@ Het is ook mogelijk om met delen van het programma mee te doen.
 
 De kosten voor deze dag bedragen 30 euro.
 
-Bent u donateur met een vast bedrag van meer dan 40 euro per jaar? Dan is deelname gratis. Dit geldt overigens voor [nieuwe donateurs](/donateur-worden).
+Bent u donateur met een vast bedrag van meer dan 40 euro per jaar? Dan is deelname gratis. Dit geldt overigens voor [nieuwe donateurs](/meer-info/donateur-worden).
 
 U kunt zich aanmelden voor de scratchdag via [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com) onder vermelding van 'scratchdag'. Graag ontvangen we daarbij uw volledige naam, jaar van aankomst, en instrument of stemgroep.
 
