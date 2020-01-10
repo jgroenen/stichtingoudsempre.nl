@@ -28,6 +28,6 @@ ten name van Stichting Oud Sempre
 
 ### Social media
 
-[facebook.com/stichtingoudsempre](http://www.facebook.com/stichtingoudsempre)
+[SOS groep op Facebook](http://www.facebook.com/stichtingoudsempre)
 
-[LinkedIn](https://www.linkedin.com/groups/4336251/)
+[SOS groep op LinkedIn](https://www.linkedin.com/groups/4336251/)
