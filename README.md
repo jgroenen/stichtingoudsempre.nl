@@ -12,7 +12,7 @@ Wil je deze nieuwsbrief ook ontvangen? Meld je bij ons per mail, aan stichtingou
 
 [LinkedIn](https://www.linkedin.com/groups/4336251/)
 
-### Ab-actiaat
+### Ab-Actiaat
 
 E-mail:
 
