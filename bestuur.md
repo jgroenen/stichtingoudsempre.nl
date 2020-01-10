@@ -4,7 +4,7 @@ Per 1 februari 2020 is het bestuur van Stichting Oud Sempre als volgt samengeste
 
 dhr. **Tim Kloostermans**, Praeses
 
-dhr. **Geert Wijts (choir 2004)**, Quaestor
+dhr. **Geert Wijts (choir 2003)**, Quaestor
 
 dhr. **Johan Groenen (orchest, choir 2003)**, Ab-Actis<br>
 [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
