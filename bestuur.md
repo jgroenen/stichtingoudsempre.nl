@@ -2,17 +2,17 @@
 
 Per 1 februari 2020 is het bestuur als volgt samengesteld:
 
-Tim Kloostermans, Praeses
+dhr. Tim Kloostermans, Praeses
 
-Geert Wijts, Quaestor
+dhr. Geert Wijts, Quaestor
 
-Johan Groenen, Ab-Actis<br>
+dhr. Johan Groenen, Ab-Actis<br>
 [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
 
-Guus Schaepman, Commissaris Donateurs en Vice-Praeses
+dhr. Guus Schaepman, Commissaris Donateurs en Vice-Praeses
 
-Jet Schipper, Commissaris Jonge Reünisten
+mlle. Jet Schipper, Commissaris Jonge Reünisten
 
-Emma van Wissen, Commissaris Activiteiten
+mlle. Emma van Wissen, Commissaris Activiteiten
 
-Christiaan de Vries, Algemeen Bestuurslid
+dhr. Christiaan de Vries, Algemeen Bestuurslid
