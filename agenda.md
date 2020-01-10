@@ -12,7 +12,7 @@ In deze nieuwbrief ondermeer: aanmelden scratchdag 2020 en SOS jaarvergadering, 
 
 Op 7 maart is het weer zover: de jaarlijkse Sempre reünisten scratchdag. Overdag zullen we samen met de huidige leden van Sempre een aantal stukken instuderen, welke we in concert zullen uitvoeren aan het eind van de middag. Aansluitend zal er een muzijchale borrel plaatsvinden op Sociëteit.
 
-[meer informatie »](/scratchdag2020)
+[meer informatie »](/meer-info/scratchdag-2020)
 
 <hr>
 
