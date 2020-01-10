@@ -38,7 +38,7 @@ In de ochtend vooraf zal de SOS **jaarvergadering** plaatsvinden, waarin het SOS
 
 De kosten voor deze dag bedragen 30 euro.
 
-*Publiek* voor het concert en de borrel is van harte welkom, dus nodigt u ze vooral uit! Kosten hiervoor zijn 10 euro per persoon.
+Voor het concert en de borrel is **publiek** van harte welkom; nodigt u ze vooral uit! Kosten hiervoor zijn 10 euro per persoon.
 
 Bent u donateur met een vast bedrag van meer dan 40 euro per jaar? Dan is deelname gratis. Dit geldt overigens ook voor [nieuwe donateurs](/meer-info/donateur-worden).
 
