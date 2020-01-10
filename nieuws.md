@@ -1,14 +1,16 @@
-## Nieuwsbrief november 2019
+## Nieuwsbrief januari 2020
 
-### Uitnodiging Dies - 7 december 2019
+### 7 maart: doe mee met de Scratchdag!
 
-Het studentenleven staat bekend om zijn onstuimigheid en chaos, maar gelukkig kent de kalender van Sempre grote regelmaat. Op zaterdag 7 december zal de 188ste dies natalis van Sempre worden gevierd, zoals dat hoort met een concert en gala. Naar goed gebruik is het concert een matinee-uitvoering, startend om klokke 15 uur in de Marekerk.
+Muziek maken en borrelen met je oude muziekvrienden: op zaterdag 7 maart 2020 zal de jaarlijkse Scratchdag weer plaatsvinden op Sociëteit Minerva.
 
-In het thema 'De jonge musicus' zullen onder andere de Krönungsmesse van Mozart en het tweede pianoconcert van Rachmaninoff ten gehore worden gebracht.
+Samen met de huidige leden van SMG Sempre Crescendo zullen we overdag een aantal mooie stukken instuderen. Deze worden ten gehore gebracht tijdens het concert aan het eind van de middag, waarna we de dag afsluiten met een muzijchale borrel op Sociëteit.
 
-Aansluitend is er de diesborrel op (nog aan te kondigen) locatie. Alle reünisten zijn natuurlijk bij dezen van harte uitgenodigd om te komen luisteren en het glas op het Gezelschap te heffen op deze feestelijke dag. De diesviering is in gala.
+Publiek is natuurlijk van harte welkom op het concert en de borrel.
 
-[Bekijk de gehele laatste nieuwsbrief hier](https://mailchi.mp/2358e1b81441/nieuwsbrief-juni-stichting-oud-sempre-505487)
+Voorafgaand aan de Scratch vindt 's ochtends de SOS-jaarvergadering plaats, waarin het SOS-bestuur de jaarstukken toelicht en overige vragen beantwoordt.
+
+[Bekijk de gehele laatste nieuwsbrief hier](https://mailchi.mp/80a712ab40d9/sos-nieuwsbrief-januari-2020)
 
 ## Blijf op de hoogte
 
