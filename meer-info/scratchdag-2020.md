@@ -6,7 +6,7 @@ Publiek is van harte welkom (*zie ook "kosten en aanmelding" hieronder*).
 
 In de ochtend vooraf zal de SOS **jaarvergadering** plaatsvinden, waarin het SOS-bestuur de jaarstukken toelicht en overige vragen beantwoordt.
 
-<a style="display:block; border: 2px solid black" href="mailto:stichtingoudsempre@gmail.com?subject=aanmelding%20scratchdag&body=naam:%0D%0Ajaar:%0D%0Ainstrument/stemgroep:%0D%0Aoverige:">AANMELDEN</a>
+<a target="_blank" style="display:inline-block; background: #222222; color: #fff; padding: 1em 2em" href="mailto:stichtingoudsempre@gmail.com?subject=aanmelding%20scratchdag&body=naam:%20%0D%0Ajaar:%20%0D%0Ainstrument/stemgroep:%20%0D%0Aoverige:%20">AANMELDEN</a>
 
 ### Programma
 
