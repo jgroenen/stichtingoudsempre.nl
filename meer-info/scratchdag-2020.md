@@ -6,7 +6,7 @@ Publiek is van harte welkom (*zie ook "kosten en aanmelding" hieronder*).
 
 In de ochtend vooraf zal de SOS **jaarvergadering** plaatsvinden, waarin het SOS-bestuur de jaarstukken toelicht en overige vragen beantwoordt.
 
-<a target="_blank" style="display:inline-block; background: #222222; color: #fff; padding: 1em 2em" href="mailto:stichtingoudsempre@gmail.com?subject=aanmelding%20scratchdag&body=naam:%20%0D%0Ajaar:%20%0D%0Ainstrument/stemgroep:%20%0D%0Aoverige:%20">AANMELDEN</a>
+<a target="_blank" style="display:inline-block; background: #222222; color: #fff; padding: 1em 2em" href="mailto:stichtingoudsempre@gmail.com?subject=aanmelding%20scratchdag&body=L.S.%2C%0A%0ABij%20dezen%20meld%20ik%20me%20graag%20aan%20voor%20de%20scratchdag%20op%20zaterdag%207%20maart%202020.%0A%0AIk%20neem%20deel%20aan%3A%0A%0A10%3A30%20stichtingsvergadering%0A12%3A00%20lunch%0A13%3A00%20repetities%0A17%3A00%20concert%0A18%3A00%20borrel%0A%0Anaam%3A%0Ajaar%3A%0Ainstrument%2Fstem%3A%0Aoverige%3A">AANMELDEN</a>
 
 ### Programma
 
@@ -48,4 +48,4 @@ U kunt zich aanmelden voor de scratchdag via [stichtingoudsempre@gmail.com](mail
 
 Wilt u jonge kinderen meenemen waar op gepast dient te worden? Gelieve dit aan te geven en uw telefoonnummer te vermelden, dan nemen we daarover contact met u op.
 
-<a target="_blank" style="display:inline-block; background: #222222; color: #fff; padding: 1em 2em" href="mailto:stichtingoudsempre@gmail.com?subject=aanmelding%20scratchdag&body=naam:%20%0D%0Ajaar:%20%0D%0Ainstrument/stemgroep:%20%0D%0Aoverige:%20">AANMELDEN</a>
+<a target="_blank" style="display:inline-block; background: #222222; color: #fff; padding: 1em 2em" href="mailto:stichtingoudsempre@gmail.com?subject=aanmelding%20scratchdag&body=L.S.%2C%0A%0ABij%20dezen%20meld%20ik%20me%20graag%20aan%20voor%20de%20scratchdag%20op%20zaterdag%207%20maart%202020.%0A%0AIk%20neem%20deel%20aan%3A%0A%0A10%3A30%20stichtingsvergadering%0A12%3A00%20lunch%0A13%3A00%20repetities%0A17%3A00%20concert%0A18%3A00%20borrel%0A%0Anaam%3A%0Ajaar%3A%0Ainstrument%2Fstem%3A%0Aoverige%3A">AANMELDEN</a>
