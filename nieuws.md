@@ -10,7 +10,7 @@ Periodieke nieuwsbrief van de Stichting Oud Sempre, met deze keer:
 - plannen voor een projectorkest van en voor Semprereünisten;
 - en meer!
 
-[Bekijk de gehele laatste nieuwsbrief hier](https://mailchi.mp/80a712ab40d9/sos-nieuwsbrief-januari-2020)
+Bekijk [de gehele laatste nieuwsbrief](https://mailchi.mp/80a712ab40d9/sos-nieuwsbrief-januari-2020)
 
 ## Blijf op de hoogte
 
