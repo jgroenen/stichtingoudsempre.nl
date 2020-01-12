@@ -1,14 +1,14 @@
-## Nieuwsbrief januari 2020
+## Het laatste nieuws
 
-### 7 maart: doe mee met de Scratchdag!
+### Nieuwsbrief januari 2020
 
-Muziek maken en borrelen met je oude muziekvrienden: op zaterdag 7 maart 2020 zal de jaarlijkse Scratchdag weer plaatsvinden op Sociëteit Minerva.
+Periodieke nieuwsbrief van de Stichting Oud Sempre, met deze keer:
 
-Samen met de huidige leden van SMG Sempre Crescendo zullen we overdag een aantal mooie stukken instuderen. Deze worden ten gehore gebracht tijdens het concert aan het eind van de middag, waarna we de dag afsluiten met een muzijchale borrel op Sociëteit.
-
-Publiek is natuurlijk van harte welkom op het concert en de borrel.
-
-Voorafgaand aan de Scratch vindt 's ochtends de SOS-jaarvergadering plaats, waarin het SOS-bestuur de jaarstukken toelicht en overige vragen beantwoordt.
+- aanmelden voor de Scratchdag van 7 maart aanstaande;
+- bestuurswissel Stichting Oud Sempre;
+- foto's van de Sempre diesviering op 7 december 2019;
+- plannen voor een projectorkest van en voor Semprereünisten;
+- en meer!
 
 [Bekijk de gehele laatste nieuwsbrief hier](https://mailchi.mp/80a712ab40d9/sos-nieuwsbrief-januari-2020)
 
