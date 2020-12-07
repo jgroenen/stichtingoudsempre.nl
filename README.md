@@ -18,8 +18,8 @@ Met [dit formulier](https://drive.google.com/file/d/1MvxQG-HzYJvejG7VyTIh76NQXcP
 
 Stichting Oud Sempre<br>
 ter attentie van dhr. Johan Groenen<br>
-Burgemeester de Josselin de Jonglaan 8<br>
-3042 NH Rotterdam
+Plein 2<br>
+2471AN Zwammerdam
 
 [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
 
