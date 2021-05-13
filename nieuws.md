@@ -1,5 +1,7 @@
 ## Het laatste nieuws
 
+<!--
+
 ### Nieuwsbrief januari 2020
 
 Periodieke nieuwsbrief van de Stichting Oud Sempre, met deze keer:
@@ -11,6 +13,8 @@ Periodieke nieuwsbrief van de Stichting Oud Sempre, met deze keer:
 - en meer!
 
 Lees [de gehele laatste nieuwsbrief](https://mailchi.mp/80a712ab40d9/sos-nieuwsbrief-januari-2020) voor meer informatie.
+
+-->
 
 ## Blijf op de hoogte
 
