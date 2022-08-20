@@ -1,9 +1,7 @@
 ## Aankomende activiteiten
 
-#### tot nader order
-### Geen activiteiten i.v.m. Corona-maatregelen
-
-In verband met de maatregelen in het kader van de Corona epidemie zijn er op dit moment geen activiteiten gepland.
+#### 14 september 2022
+### Bestuursoverdracht SMG "Sempre Crescendo"
 
 <!--
 
