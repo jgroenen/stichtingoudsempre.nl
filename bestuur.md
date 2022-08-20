@@ -11,4 +11,4 @@ dhr. **Johan Groenen (2002, orchest + choir)**, Ab-Actis<br>
 
 mlle. **Jet Schipper (2011, choir)**, Commissaris Jonge Reünisten
 
-mlle. **Helianne Kalff ( _ , choir)**, Commissaris Activiteiten en Vice-Praeses
+mlle. **Helianne Kalff (2011, choir)**, Commissaris Activiteiten en Vice-Praeses
