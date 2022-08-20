@@ -1,3 +1,4 @@
+<!--
 ## Het laatste nieuws
 
 <ul>
@@ -7,6 +8,8 @@
     </li>
   {% endfor %}
 </ul>
+
+-->
 
 <!--
 
