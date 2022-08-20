@@ -1,6 +1,6 @@
 ## Bestuur
 
-Per _ is het bestuur van Stichting Oud Sempre als volgt samengesteld:
+Het bestuur van Stichting Oud Sempre is als volgt samengesteld:
 
 dhr. **Tim Kloosterman (1974, choir + orchest)**, Praeses
 
