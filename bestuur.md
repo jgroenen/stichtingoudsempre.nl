@@ -1,6 +1,6 @@
 ## Bestuur
 
-Per 1 januari 2021 is het bestuur van Stichting Oud Sempre als volgt samengesteld:
+Per _ is het bestuur van Stichting Oud Sempre als volgt samengesteld:
 
 dhr. **Tim Kloosterman (1974, choir + orchest)**, Praeses
 
@@ -11,4 +11,4 @@ dhr. **Johan Groenen (2002, orchest + choir)**, Ab-Actis<br>
 
 mlle. **Jet Schipper (2011, choir)**, Commissaris Jonge Reünisten
 
-mlle. **Emma van Wissen (2012, orchest)**, Commissaris Activiteiten en Vice-Praeses
+mlle. **Helianne Kalff ( _ , choir)**, Commissaris Activiteiten en Vice-Praeses
