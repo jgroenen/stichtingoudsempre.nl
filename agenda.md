@@ -1,4 +1,8 @@
+## Agenda
+
 <iframe src="https://calendar.google.com/calendar/embed?src=stichtingoudsempre%40gmail.com&ctz=Europe%2FBrussels" style="border: 0" width="800" height="600" frameborder="0" scrolling="no"></iframe>
+
+<!--
 
 ## Aanstaande activiteiten
 
@@ -18,8 +22,6 @@
 ### Bestuursoverdracht SMG "Sempre Crescendo"
 
 <hr>
-
-<!--
 
 #### december 7 maart 2020
 ### SOS scratchdag en jaarvergadering
