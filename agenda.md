@@ -1,6 +1,6 @@
 ## Agenda
 
-<iframe src="https://calendar.google.com/calendar/embed?height=600&wkst=2&bgcolor=%23ffffff&ctz=Europe%2FBrussels&title=Activiteiten%20Stichting%20Oud%20Sempre&showTitle=1&showNav=0&showDate=1&showPrint=0&showTabs=0&showCalendars=0&showTz=1&mode=AGENDA&src=c3RpY2h0aW5nb3Vkc2VtcHJlQGdtYWlsLmNvbQ&color=%237986CB" style="border-width:0" width="800" height="600" frameborder="0" scrolling="no"></iframe>
+<iframe src="https://calendar.google.com/calendar/embed?height=600&wkst=2&bgcolor=%23ffffff&ctz=Europe%2FBrussels&title=Activiteiten%20Stichting%20Oud%20Sempre&showTitle=1&showNav=0&showDate=1&showPrint=0&showTabs=0&showCalendars=0&showTz=1&mode=AGENDA&src=c3RpY2h0aW5nb3Vkc2VtcHJlQGdtYWlsLmNvbQ&color=%237986CB" style="border-width:0; max-width: 100%" width="800" height="600" frameborder="0" scrolling="no"></iframe>
 
 <!--
 
