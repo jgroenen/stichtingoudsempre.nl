@@ -1,7 +1,21 @@
-## Aankomende activiteiten
+## Aanstaande activiteiten
+
+#### 7 november 2022
+### Constitutieborrel SMG "Sempre Crescendo"
+
+<hr>
+
+#### 10 december 2022
+### Diesconcert SMG "Sempre Crescendo"
+
+<hr>
+
+## Recente activiteiten
 
 #### 14 september 2022
 ### Bestuursoverdracht SMG "Sempre Crescendo"
+
+<hr>
 
 <!--
 
