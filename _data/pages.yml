@@ -6,6 +6,9 @@
   
 - name: agenda
   url: /agenda
+
+- name: musiceren
+  url: /musiceren
   
 - name: bestuur
   url: /bestuur
