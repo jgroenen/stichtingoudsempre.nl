@@ -2,7 +2,7 @@
 
 Ben je op zoek naar een orkest of koor in jouw stad? Hieronder vind je een overzicht van koren en orkesten waarin oud-leden van Sempre Crescendo musiceren.
 
-Wil je jouw koor of orkest ook aanmelden? Stuurn een mail naar [bestuur@stichtingoudsempre.nl](mailto:bestuur@stichtingoudsempre.nl)
+Wil je jouw koor of orkest ook aanmelden? Stuurn een mail naar [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
 
 ## Den Haag
 
