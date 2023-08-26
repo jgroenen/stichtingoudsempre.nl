@@ -6,7 +6,7 @@ Wil je jouw koor of orkest ook aanmelden? Stuur een mail naar [stichtingoudsempr
 
 ## Amsterdam
 
-*Boeuf Majeur* - Voor wie vanuit het choir een volgende uitdaging zoekt en het avontuur nier schuwt is er Boeuf Majeur; het sappigste koor van Amsterdam, beroemd en berucht ver daar buiten, onder leiding van oud-Sempredirigent en gouden erelid Tristan Knelange. Het koor heeft ongeveer 40 ervaren zangers en repeteert lekker vertrouwd op de donderdagavond. Voor fantastische concerten met theatrale vergezichten en nóg betere afters moet je bij Boeuf zijn. Vind ons op [https://www.boeufmajeur.nl](https://www.boeufmajeur.nl)
+*Boeuf Majeur* - Voor wie vanuit het choir een volgende uitdaging zoekt en het avontuur niet schuwt is er Boeuf Majeur; het sappigste koor van Amsterdam, beroemd en berucht ver daar buiten, onder leiding van oud-Sempredirigent en gouden erelid Tristan Knelange. Het koor heeft ongeveer 40 ervaren zangers en repeteert lekker vertrouwd op de donderdagavond. Voor fantastische concerten met theatrale vergezichten en nóg betere afters moet je bij Boeuf zijn. Vind ons op [https://www.boeufmajeur.nl](https://www.boeufmajeur.nl)
 
 ## Den Haag
 
