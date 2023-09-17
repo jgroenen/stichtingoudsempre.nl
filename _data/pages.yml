@@ -13,5 +13,5 @@
 - name: bestuur
   url: /bestuur
   
-- name: documenten
-  url: /documenten
+# - name: documenten
+#  url: /documenten
