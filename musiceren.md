@@ -14,13 +14,11 @@ Wil je jouw koor of orkest ook aanmelden? Stuur een mail naar [stichtingoudsempr
 
 *Zuid-Hollands Symfonie Orkest* - Dit orkest is een leuke mix van jong en oud. We repeteren op woensdagavond aan de Bezuidenhoutse weg in Den Haag. Niet alleen maken we graag muziek met elkaar, ook gezelligheid is belangrijk. Tijdens het repetitieweekend in april j.l. ging het karaoke apparaat pas om 4u 's nachts uit. Vooral violen zijn op het ogenblik erg welkom! [https://www.hetzso.nl/over-ons/](https://www.hetzso.nl/over-ons/)
 
+*Residentie Bachkoor* - Het Residentie Bachkoor is een grootkoor dat op hoog niveau repeteert en concerten geeft. Naast Bach zingen we ook veel stukken van andere componisten, zoals Bruckner, Verdi, Mozart en Britten. Er wordt wekelijks gerepeteerd op donderdagavond in Den Haag waarna er ook vaak met een groep geborreld wordt. Ook gaan we eens in de zoveel jaar op concertreis. We zijn zelfs uitgenodigd om in 2025 te komen zingen op het Bachfestival in Leipzig! Inschrijven kan t/m 45 jaar – dit zorgt ervoor dat het koor divers blijft qua leeftijden. Als je geïnteresseerd bent, kijk dan op: [https://bachensembles.nl/zing-mee/](https://bachensembles.nl/zing-mee/). Je mag natuurlijk ook altijd een keer een proefrepetitie mee komen doen!
+
 ## Driebergen (Utrechtse Heuvelrug)
 
-*KamerOrkest Driebergen* is een goed en gezellig kamerorkest, gericht op de regio Utrechtse Heuvelrug – Zeist en omgeving. Wij vieren dit jaar het 35-jarig bestaan!
-
-Wij repeteren op donderdagavond in Driebergen o.l.v. de enthousiaste jonge dirigent Samuel Tamarit Otero. We hebben nog behoefte aan meer strijkers, i.h.b. violisten. De eerstvolgende concerten zijn op zaterdag 9 december in de Andrieskerk te Amerongen (try-out) en zondag 10 december in de Sionskerk in Zeist. We spelen samen met Gemengd Koor Scherzando werken van Bizet, Brahms, Fauré en Schubert.
-
-Website: [www.kamerorkestdriebergen.nl](https://www.kamerorkestdriebergen.nl)
+*KamerOrkest Driebergen* is een goed en gezellig kamerorkest, gericht op de regio Utrechtse Heuvelrug – Zeist en omgeving. Wij vieren dit jaar het 35-jarig bestaan! Wij repeteren op donderdagavond in Driebergen o.l.v. de enthousiaste jonge dirigent Samuel Tamarit Otero. We hebben nog behoefte aan meer strijkers, i.h.b. violisten. De eerstvolgende concerten zijn op zaterdag 9 december in de Andrieskerk te Amerongen (try-out) en zondag 10 december in de Sionskerk in Zeist. We spelen samen met Gemengd Koor Scherzando werken van Bizet, Brahms, Fauré en Schubert. Website: [www.kamerorkestdriebergen.nl](https://www.kamerorkestdriebergen.nl)
 
 ## Leiden
 
