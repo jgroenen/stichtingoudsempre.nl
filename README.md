@@ -17,10 +17,7 @@ Met [dit formulier](https://drive.google.com/file/d/1MvxQG-HzYJvejG7VyTIh76NQXcP
 ### Ab-Actiaat
 
 Stichting Oud Sempre<br>
-ter attentie van dhr. Johan Groenen<br>
-Plein 2<br>
-2471AN Zwammerdam
-
+ter attentie van mlle. Helianne Kalff<br>
 [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
 
 ### Quaestuur

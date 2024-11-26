@@ -4,11 +4,15 @@ Het bestuur van Stichting Oud Sempre is als volgt samengesteld:
 
 mlle. **Joanna Amkreutz**, Praeses
 
-dhr. **Johan Groenen**, Ab-Actis<br>
-[stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
+dhr. **Geert Wijts**, Quaestor (vertrekkend)
 
-dhr. **Geert Wijts**, Quaestor
+mlle. **Helianne Kalff**, Ab-Actis<br>
+[stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com)
 
 dhr. **Johan van der Poest Clement**, Commissaris Jonge Reünisten
 
-mlle. **Helianne Kalff**, Commissaris Activiteiten en Vice-Praeses
+mlle. **Eva Ulmann**, Algemeen bestuurslid
+
+mlle. **Pauline van der Plas**, Algemeen bestuurslid
+
+dhr. **Johan Groenen**, Algemeen bestuurslid (vertrekkend)
