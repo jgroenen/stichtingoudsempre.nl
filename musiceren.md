@@ -8,6 +8,10 @@ Wil je jouw koor of orkest ook aanmelden? Stuur een mail naar [stichtingoudsempr
 
 *Boeuf Majeur* - Voor wie vanuit het choir een volgende uitdaging zoekt en het avontuur niet schuwt is er Boeuf Majeur; het sappigste koor van Amsterdam, beroemd en berucht ver daar buiten, onder leiding van oud-Sempredirigent en gouden erelid Tristan Knelange. Het koor heeft ongeveer 40 ervaren zangers en repeteert lekker vertrouwd op de donderdagavond. Voor fantastische concerten met theatrale vergezichten en nóg betere afters moet je bij Boeuf zijn. Vind ons op [https://www.boeufmajeur.nl](https://www.boeufmajeur.nl)
 
+## Baarn
+
+*Artoni* - Het Baarns Kamerorkest Artoni is een klein symfonieorkest, met amateurmusici uit Baarn en omstreken. Artoni is opgericht in 2018 en geeft doorgaans twee concerten per jaar, eind maart en eind november, in de Paaskerk te Baarn met een gezellig samenzijn achteraf. In 2024 ging de eerste dirigent Ali Groen met pensioen en het orkest staat nu onder de bezielende leiding van de jonge dirigent Inge Lage Venterink. Het orkest repeteert op donderdagavond ongeveer 13 maal voor ieder concert in de blauwe zaal van het theater De Speeldoos te Baarn. Er zijn vacatures binnen het orkest. Vooral strijkers zijn welkom. Zie onze website: [www.artoni-baarn.nl](www.artoni-baarn.nl)
+
 ## Den Haag
 
 #### Koren
@@ -21,6 +25,8 @@ Wil je jouw koor of orkest ook aanmelden? Stuur een mail naar [stichtingoudsempr
 *Zuid-Hollands Symfonie Orkest* - Dit orkest is een leuke mix van jong en oud. We repeteren op woensdagavond aan de Bezuidenhoutse weg in Den Haag. Niet alleen maken we graag muziek met elkaar, ook gezelligheid is belangrijk. Tijdens het repetitieweekend in april j.l. ging het karaoke apparaat pas om 4u 's nachts uit. Vooral violen zijn op het ogenblik erg welkom! [https://www.hetzso.nl/over-ons/](https://www.hetzso.nl/over-ons/)
 
 *Bataafs Symfonie Orkest* - Dit orkest staat onder leiding van Arne Visser en richt zich op een iets minder traditioneel repertoire. Dat wil zeggen, ze spelen uiteraard wel klassieke muziek, maar niet zo zeer uit het ijzeren repertoire. Bekende werken schuwen ze zeker niet, maar modern werk wordt wel opgezocht. Op de website [https://bataafs.nl](https://bataafs.nl/) onder de kop Concerten en dan de subkop Eerdere Concerten kan je een indruk krijgen van het repertoire. Tevens spelen er meerdere oud Sempre-leden mee; zie de kop Het Orkest, onder de subkop Bezetting/players. Hier staan ook de vacatures vermeld.
+
+*Musica* - Symfonieorkest Musica werd in 1910 opgericht door een groep enthousiaste amateurmusici en behoort tot de oudste amateurorkesten van Den Haag. Het orkest telt ruim zeventig leden van diverse nationaliteiten en geeft meerdere concertseries per jaar in Den Haag en omgeving. Musica biedt graag een podium aan jonge, talentvolle solisten. Zo werkte het orkest eerder samen met onder anderen Lisa Jacobs, Nikola Meeuwsen, Laetitia Gerards, Jeannette van Schaik, Florian Verweij en Hawijch Elders. Musica repeteert iedere maandagavond in het Zandvliet Lyceum in Den Haag en per seizoen worden twee repetitiedagen of een repetitieweekend georganiseerd. Voor de groepsrepetities nodigt Musica professionele coaches uit. [https://www.musicadenhaag.nl/](https://www.musicadenhaag.nl/)
 
 ## Driebergen (Utrechtse Heuvelrug)
 
