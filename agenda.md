@@ -1,7 +1,7 @@
 ## Agenda
 
 ## Aanstaande activiteiten
-Voor de meest actuele agenda, abonneer je op de nieuwsbrief!
+Voor de meest actuele agenda, [abonneer je op de nieuwsbrief!](https://www.stichtingoudsempre.nl/nieuws)
 
 #### 3 mei 2026
 ### Lustrumvoorjaarsconcert in de Stadsgehoorzaal
