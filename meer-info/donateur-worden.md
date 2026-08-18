@@ -4,4 +4,4 @@ Stichting Oud Sempre organiseert jaarlijks activiteiten waarom reünisten en hui
 
 Een jaarlijkse bijdrage hieraan wordt zeer op prijs gesteld.
 
-Met [dit formulier](https://drive.google.com/file/d/12u9xp2f_Arc71N9md2etx2gdJYnnRgdp/view?usp=sharing) geeft u toestemming voor een jaarlijkse incasso. Neem voor meer informatie gerust contact op via [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com).
+Met [dit formulier](https://drive.google.com/file/d/1vi9V1fuINQwzc8ZDPQyjStBNmk1RQvQp/view?usp=sharing) geeft u toestemming voor een jaarlijkse incasso. Neem voor meer informatie gerust contact op via [stichtingoudsempre@gmail.com](mailto:stichtingoudsempre@gmail.com).
